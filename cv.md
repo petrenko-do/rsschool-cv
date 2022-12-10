@@ -7,7 +7,9 @@
 **Contact information:**
 
 ***Pgone:*** +48 576 181 027
+*****
 ***E-mail:*** petrenko-do@wp.pl
+*****
 ***Telegram:*** @den1567890
 
 ---
