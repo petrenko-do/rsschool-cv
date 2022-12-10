@@ -14,7 +14,7 @@
 
 **About myself:**
 
-I started learning web development about 2 years ago. Now, in addition to this course, I also teach JS
+I started learning web development about 2 years ago. Now, in addition to this course, I also teach JS.
 
 ---
 
